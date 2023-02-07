@@ -1,6 +1,6 @@
 # My_Branding_Experience_B2B
 
-# vendors
+# Vendors
 
 https://ugolokskazki.ru/catalog/smeshariki/ 
 
